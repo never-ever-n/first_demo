@@ -1,4 +1,5 @@
 hey!! how are you first repo...
 <br>
-i think it isn't :)
-to create a repo by using git is also lasdfj
+no bro it wasn't like but still
+hopign you all good.
+lfkad;fj
